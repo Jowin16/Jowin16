@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jowin16
-- 👀 I’m interested in Girls
+- 👀 I’m interested in Myself
 - 🌱 I’m currently learning Proggraming Language
 - 💞️ I’m looking to collaborate on anyone
 - 📫 How to reach me ...
